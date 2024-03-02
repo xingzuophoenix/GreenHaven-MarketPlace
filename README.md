@@ -51,4 +51,4 @@ Connect With GreenHaven Marketplace
 
 GreenHaven Marketplace is more than just a destination for sustainable shopping; it's a hub for innovation, education, and community. We're on a mission to make eco-friendly living accessible, transparent, and rewarding for everyone. Join us as we pave the way to a more sustainable future, one product, one package, and one purchase at a time.
 
-Let's Together!!
+Let's Together!! 
