@@ -4,6 +4,10 @@ Welcome to GreenHaven, where our passion for the planet drives every aspect of o
 Subscribe To
       GreenHaven MarketPlace
            Subscribe to GreenHaven MarketPlace and get a special 30% offer.
+
+          Uploading WhatsApp Video 2024-03-02 at 8.55.50 AM (1).mp4…
+           
+           
 Rooted In Sustainability, Growing In Impact
 Founded by a team of environmentalists and entrepreneurs, GreenHaven Marketplace emerged from the urgent need to bridge the gap between eco-friendly products and conscious consumers. 
  Eco-Friendly Product Marketplace
