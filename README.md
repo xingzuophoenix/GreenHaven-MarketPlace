@@ -16,7 +16,7 @@ Founded by a team of environmentalists and entrepreneurs, GreenHaven Marketplace
 
 https://drive.google.com/file/d/1pl8EDdb_yIFRhOCJkvqfUWatUfhCjtb-/view?usp=drive_link[](url)
 
-https://drive.google.com/file/d/16a-0N251TKf8V5y-51DNTKDiLHG-ZMEU/view?usp=drive_link
+https://drive.google.com/file/d/16a-0N251TKf8V5y-51DNTKDiLHG-ZMEU/view?usp=drive_link[](url)
 
  Eco-Friendly Product Marketplace
  
