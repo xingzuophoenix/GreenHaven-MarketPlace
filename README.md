@@ -24,4 +24,4 @@ GreenHaven Marketplace is a platform dedicated to providing eco-conscious consum
 
 [![Watch the video](https://img.youtube.com/vi/9ZHNx5Vzaig/0.jpg)](https://youtu.be/9ZHNx5Vzaig)
 
-
+[![Watch the video](https://img.youtube.com/vi/db8a8xRASo4/0.jpg)](https://youtu.be/db8a8xRASo4)
