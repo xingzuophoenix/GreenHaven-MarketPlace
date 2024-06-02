@@ -19,6 +19,7 @@ GreenHaven Marketplace is a platform dedicated to providing eco-conscious consum
 - **AI-driven Recommendations**: Get personalized product recommendations powered by AI to match your sustainability goals and preferences.
 
 [![View the PDF](https://raw.githubusercontent.com/your-username/your-repo/main/assets/preview.png)](https://acrobat.adobe.com/id/urn:aaid:sc:AP:9d972df4-c6aa-4146-bd02-5b5dbd4df042)
+
 # Watch the Demo
 
 [![Watch the video](https://img.youtube.com/vi/9ZHNx5Vzaig/0.jpg)](https://youtu.be/9ZHNx5Vzaig)
